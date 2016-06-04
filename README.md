@@ -1,2 +1,1 @@
-# hellow-world
-Just for sunnygar
+My name is MacDonald Sunnygar Brown, Jr. a born Liberian
